@@ -1,0 +1,2 @@
+# diagrampenjualansalsikirana
+diagram
